@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @pranamyajain20
+- 👀 I’m interested in, Traveling, Designing, making ART, and music
+- 🌱 I’m currently learning Graphic Designing, Video Editing, and Japanese
+- 💞️ I’m looking to collaborate on a design project such as an album cover design, clothing brands, and sticker-making
+- 📫 How to reach me contact me on inst: @crazy.carter.design or email me: pranamyajain2003@gmail.com
